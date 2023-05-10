@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @abhinav841
 - 👀 I love exploring different forms of art one of which is coding
-- 🌱 I’m currently playing with and hence learning maths and coding
+- 🌱 I’m currently a physics student
 - 💞️ I’m looking to collaborate on ... not yet decided
 - 📫 I'm also on Sololearn: 19432905
 
